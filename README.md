@@ -17,3 +17,5 @@
 金子恩：azak22226666@gmail.com
 張凱翔：kaixiang4515@gmail.com
 何庭瑋：mar1963asdl@gmail.com
+王聖凱: chris@goodideas-studio.com
+
