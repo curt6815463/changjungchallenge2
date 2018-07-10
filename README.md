@@ -13,6 +13,7 @@
 吳科賞：ms0387327@gmail.com
 黃品誠：asdzxc9095@gmail.com
 史睿恩：vuples39@gmail.com
+陳昭佑：kroy1002@gmail.com
 劉珈佑：toey8610@yahoo.com.tw
 金子恩：azak22226666@gmail.com
 張凱翔：kaixiang4515@gmail.com
